@@ -36,4 +36,6 @@ Since its establishment, Nexus Darknet Market has built a solid reputation based
 ---
 *Disclaimer: This article is for informational purposes only. Engaging in illegal activities on darknet markets is against the law and punishable by legal authorities.*
 
-Update:  09/14/2025
+
+
+Update:  Thursday 18 September 2025
